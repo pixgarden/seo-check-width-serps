@@ -1,0 +1,1 @@
+# seo-check-width-serps
